@@ -1,2 +1,21 @@
+;https://jnnnkwns.github.io/PUBLIC
+
 ## hi hi ddd
-[editor on GitHub](https://github.com/jnnnkwns/site/edit/gh-pages/index.md)
+
+[FBM](https://www.messenger.com/login)
+[]()
+[]()
+
+
+[Instgram](https://www.instagram.com)
+[]()
+[]()
+[]()
+
+[]()
+
+[]()
+
+[]()
+
+[]()
